@@ -1,4 +1,4 @@
-# CVRISHI SOOD
+# RISHI SOOD
 
 AGE: 24years
 Contact Information:
